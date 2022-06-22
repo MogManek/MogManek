@@ -1,0 +1,4 @@
+- 👋 Hej! Jestem Gejzberg (Kiedyś MogManek)
+- 👀 Jestem zainsteresowany komputerkami i bawienia się nimi.
+- 🌱 Obecnie uczę się wszystkiego.
+- 📫 Jak się ze mną skontaktować? Gejzberg#0001
